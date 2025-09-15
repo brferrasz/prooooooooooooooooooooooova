@@ -1,2 +1,2 @@
 Victor Hideichi  Mancini Suzuki
-Brrina Helena Ferraz da Cruz
+Bruna Helena Ferraz da Cruz
